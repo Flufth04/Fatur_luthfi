@@ -1,2 +1,0 @@
-# Fatur_luthfi
-Flufth
